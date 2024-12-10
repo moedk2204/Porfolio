@@ -1,2 +1,2 @@
 # portfolio
-My porfolio is the first step that will lead me to all my upcoming objectives.
+My portfolio is the first step that will lead me to all my upcoming objectives.
